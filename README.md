@@ -1,6 +1,6 @@
 # Sobre mim
 Producer, Dev and money connoisseur 🏌️‍♀️
-## wanna hmu? check https://guns.lol/6angels
+## wanna hmu? check guns.lol/6angels
 
 
 # Stacks
