@@ -1,4 +1,4 @@
-# About me
+# About Me
 Producer, Dev and money connoisseur 🏌️‍♀️
 ## wanna hmu? check guns.lol/6angels
 
